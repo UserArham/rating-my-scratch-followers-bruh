@@ -1,6 +1,6 @@
 ok, here is what I rate bruh:
 
-- endlessfanmusic: my best friend since September and helped me fron hooky in october 15 to 17, so 9.5/10.
+- endlessfanmusic: my best friend since September and helped me fron hooky in october 15 to 20, so 9.5/10.
 - no1hookyfan; 8.5/10. she is also my best friend but I have the screenshots when she was cussing me lol.
 - arham42: my banned alt, so 9/10.
 - liveforhim: unlike hooky, which screamed at me, she never screamed at me and said god bless to me, 10/10
