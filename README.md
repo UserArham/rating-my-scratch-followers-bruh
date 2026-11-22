@@ -8,6 +8,7 @@ ok, here is what I rate bruh:
 - minecrafter289: check EndlessFanMusic, so 9.5/10
 - no2hooky: I have no words, but 9/10
 - @rollingthunder849: 7/10, made peace but idk what happened after that
+- @robosplat123: trolled me
 
 ## sussy comments
 
