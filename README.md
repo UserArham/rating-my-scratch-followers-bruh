@@ -1,7 +1,7 @@
 ok, here is what I rate bruh:
 
 - endlessfanmusic: my best friend since September and helped me fron hooky in october 15 to 20, so 9.5/10.
-- no1hookyfan; 8.5/10. she is also my best friend but I have the screenshots when she was cussing me lol.
+- no1hookyfan; 9.5/10. 
 - arham42: my banned alt, so 9/10.
 - liveforhim: unlike hooky, which screamed at me, she never screamed at me and said god bless to me, 10/10
 - xx_koi_fish_xx: 9.5/10, unlike her main, she isn't active to cuss at me and she is my bestie lol. (what the heck is that bf thing she told me? also if she is turkish bf is haram)
